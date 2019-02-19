@@ -1,4 +1,4 @@
-# Speaking Practice: COMPUTERS and the INTERNET
+# [Speaking Practice: COMPUTERS and the INTERNET](https://rafaies.github.io/computers-internet/index.html "slide presentation")
 
 ## Reference
 
